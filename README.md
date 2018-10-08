@@ -1,0 +1,1 @@
+Su dung phuong thuc de tim gia tri nho nhat trong mang
